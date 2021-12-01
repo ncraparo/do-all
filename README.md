@@ -1,4 +1,4 @@
-# 𐏊⍆⏐DO-ALL⏐⍅𒌂
+# 𐏊⏐DO-ALL⏐𒌂
 Do, all.
 Yupppp.
 <br>
